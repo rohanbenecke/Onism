@@ -1,4 +1,4 @@
-# **Onism: A Philosophy of Participation**
+# **Onusm: A Philosophy of Participation**
 
 _This is one synthesis, offered for consideration, not adoption. Take what clarifies, discard what doesn't. The onus is yours._
 
